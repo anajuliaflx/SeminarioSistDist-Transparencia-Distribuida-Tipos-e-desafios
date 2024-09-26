@@ -1,0 +1,1 @@
+# SeminarioSistDist-Transparencia-Distribuida-Tipos-e-desafios
